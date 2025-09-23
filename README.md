@@ -9,8 +9,8 @@
 - 🏠 Outside tech, I love playing video games 🎮, and listening to music 🎵
 
 <img src="https://media.giphy.com/media/ObNTw8Uzwy6KQ/giphy.gif" width="27px"> ***Links***
-- 💼 Connect with me on <a href="www.linkedin.com/in/kevin-solarte-844960377">My LinkedIn</a>
-- 📫 Reach me at <a href="ksolarte14@gmail.com">ksolarte14@gmail.com</a>
+- 💼 Connect with me on <a href="www.linkedin.com/in/kevsolarte">My LinkedIn</a>
+- 📫 Reach me at <a href="ksolarte144@gmail.com">ksolarte144@gmail.com</a>
 
 ##  My Skills include
 
